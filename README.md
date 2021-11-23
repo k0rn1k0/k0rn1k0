@@ -1,4 +1,3 @@
-### Hi there 👋
 <h1 align="center">👋, I'm yAisrael ...</h1>
 <h3 align="center">A bitPulse , K0RN1K0 . P0C || GTFO :) !</h3>
 
